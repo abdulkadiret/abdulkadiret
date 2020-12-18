@@ -6,6 +6,6 @@
 - I like applying my coding skills to develop something that has a positive impact on people's day to day life :thinking:
 - I also like socialising with friends, playing and watching football,  
 refreshing and keeping myself active by walking in a park, and cooking :walking_man: :soccer: :man_cook:
-### :point_right: Feel free to get in touch with me on: [<img valign="middle" src="https://github.com/abdulkadiret/abdulkadiret/blob/main/linkedin-icon.png" alt="linkedin icon"/>](https://www.linkedin.com/in/abdulkadir-awel-23781a1a4/)
+### :point_right: Feel free to connect with me on: [<img valign="middle" src="https://github.com/abdulkadiret/abdulkadiret/blob/main/linkedin-icon.png" alt="linkedin icon"/>](https://www.linkedin.com/in/abdulkadir-awel-23781a1a4/)
 
 
